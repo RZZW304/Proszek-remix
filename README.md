@@ -1,1 +1,1 @@
-# Proszek-remix
+# orginał:@jaszczup
